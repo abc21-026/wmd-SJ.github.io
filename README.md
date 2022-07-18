@@ -1,98 +1,84 @@
 # wmd-SJ.github.io
-![4 private seater](https://user-images.githubusercontent.com/106279697/179484916-b288e5cd-8649-4b18-80c1-223f7ebca157.jpg)
-![15 seater](https://user-images.githubusercontent.com/106279697/179484939-f706186f-763d-41ff-a2d4-1d7a33ef3e5f.jpg)
-![absa debit card](ht
-![action blacklight](https://user-images.githubusercontent.com/106279697/179484984-5c425d15-e460-497f-9b
-![action fortress
-![action gasoline alley](http
-![action the pirates](https://user-images.githubusercontent.com/106279697/179485001-b233c1e0-e06f-4696-b340-f7a2f7035c65.jpg)
-s://user-images.githubusercontent.com/106279697/179484993-f637f4a3-a776-43eb-bed8-8a07fcd5fe53.jpg)
-](https://user-images.githubusercontent.com/106279697/179484989-d41dd916-e83e-496d-8a83-4490f19afcdb.jpg)
-14-1760805c7e6e.jpg)
-tps://user-images.githubusercontent.com/106279697/179484948-906a32f3-100a-4ada-b505-ce8b25de2a90.jpg)
-![absa logo](https://user-
-![absa](https://user-images.githubusercontent.com/106279697/179484969-22235dbe-ef96-4505-abb9-7516cf61bb9f.jpg)
-images.githubusercontent.com/106279697/179484958-5995fe32-396b-42f0-99e9-c182d7c5dc54.jpg)
-![actiongif](https://user-images.githubu
-![animation comedy turning red](https://user-images.githubusercontent.com/106279697/179485043-6b0bb8e8-b036-4503-a168-16d9982a664f.jpg)
-sercontent.com/106279697/179485022-6353b1d5-a01d-492d-8352-512886488851.gif)
-![al fresco](https://user-images.githubusercontent.com/106279697/179485039-cbb21e82-577c-4521-84
-![avatar the way of the water](
-![btc logo](https://user-images.githubusercontent.com/106279697/179485080-b3b4280c-448a-40fd-a623-c0b4f5bee408.jpg)
-https://user-images.githubusercontent.com/106279697/179485064-90be269c-e020-4a43-976e-01a5ea2c1801.jpg)
-ec-02ce81ac0107.jpg)
-![black panther,wakanda forever](https://user-images.githubusercontent.com/106279697/179485072-058b4758-b4ea-4ec1-a8b0-1dc301f3069d.jpg)
-
-![Uploading btc sme
-![btc](https://user-image
-![comedy a madea homecoming](https://user-images.githubusercontent.com/106279697/179485115-dde3d39f-e3f9-40e0-b981-dce19c07b986.jpg)
-s.githubusercontent.com/106279697/179485110-25912a37-f69f-4111-af96-b00779627c5c.png)
-ga visa card.jpg…]()
-![comedy the unbearable weight of massive talent](https://user-images.githubusercontent.com/106279697/179485150-8277c148-7133-4a18-a44b-898f9d182f93.jpg)
-
-![comedy the man from toronto](https://user-images.githubusercontent.com/106279697/179485143-f2b4f8b4-b6b1-4ccf-81c6-845bc24db2e1.jpg)
-![fnb credit card blue](https://user-images.githubusercontent.com/106279697/179485188-9a92ad3d-357
-![Uploading g
-![KIDS](https://user-images.githubusercontent.com/106279697/179485523-6a5a37ce-5728-4bea-bedd-2c985611dc5d.jpg)
-
-![imax gold](https://us
-![Upload
-![Uploading kids cinema.jpg…]()
-
-![jurrasic world dominion](https://user-images.githubusercontent.com/106279697/179485506-d3e9dcb2-f8ab-4328-97b0-73f753fc8b10.jpg)
-ing IMAX-Comfo
-![IMAX-Heart-Pounding-Audio](https://user-images.githubusercontent.com/106279697/179485492-1d1e9d5a-158e-4d6a-8d3b-1cea40187c9b.gif)
-rtable-Seats.gif…]()
-er-images.githubusercontent.com/106279697/179485485-6aef1025-749d-41e2-a1fa-7030b5c098c4.jpg)
-
-![Uploading he
-![HYGGE SLUSHI
-![imax 2](https://user-images.githubusercontent.com/106279697/179485468-18a2b6d5-13bf-44e3-9c85-ab4db7fcdf98.jp
-![imax 4](https://user-images.githubusercontent.com/106279697/179485471-821c2187-3046-4056-af02-6f951d79c5df.jpg)
-g)
-NATORS](https://user-images.githubusercontent.com/106279697/179485463-3a7aa03a-e95b-4c90-b0a2-d0cc140cf7d3.png)
-
-![Uploading hygge salad men
-![HYGGE salted](https://user-images.githubusercontent.com/106279697/179485458-c40ad613-b46b-4c66-b8ac-43d632ac852e.png)
-u.png…]()
-
-![HYGGE MEGA SANDWICHES](https://user-images.githubusercontent.com/106279697/179485439-6464c7ed-9882-4da4-994a-cef9e9042b46.png)
-llo goobye....jp
-![hygge dessert menu](https://user-images.githubusercontent.com/106279697/179485429-fb9e1f95-58bd-4056-b34b-9398c1f916f5.png)
-![horror hatching](https://user-images.githubusercontent.com/106279697/179485431-1f8cd8da-c7e9-4ae1-ae5c-afa465837f36.jpg)
-g…]()
-![horror hatching](ht
-![hello goobye](https://user-images.githubusercontent.com/106279697/179485425-8f8f3007-6beb-4100-be01-34f1ee94e2d6.jpg)
-![hygge cool kidz](https://user-images.githubusercontent.com/106279697/179485426-f04787de-d720-43f5-bdd9-d0803d84d039.png)
+![hygge dessert menu](https://user-images.githubusercontent.com/106279697/179513814-b3245c23-eb9f-4d5d-ae4f-ae3b8cf4eb9f.png)
+![Uploading HYGGE MEGA SANDWICHES.png…]()
+![Uploading 
+![onyx screen](https://user-images.githubusercontent.com/106279697/179513993-9731c3b1-ba6c-466b-9f53-4f1918794bd0.jpg)
+hygge salad menu.png…]()
+![PLATINUM PLUS](https://user-images.githubusercontent.com/106279697/179513999-21cb8095-94bf-4599-8252-7f4d961c3470.png)
+![scifi the moonfall](h
+![spacecraft](https://user-images.githubusercontent.com/106279697/179514097-2e195802-11d7-4f91-bfe3-622eeb806685.jpg)
+ttps://use
+![smega visa card](https://user-
+![thriller barbarians](https://user-images.githubusercontent.com/106279697/179514165-f669e8f2-3e5f-4fc4-b549-58a79954e235.jpg)
+imag
+![the hygge exclusive](https://user-images.githubusercontent.com/106279697/179514164-8df48837-4a81-4a9e-a06a-964716b5b016.png)
+es.githubusercontent.com/106279697/179514154-1394f5bd-3592-4b28-8773-5453565ddbe0.png)
+![umma](https://user-images.githubusercontent.com/106279697/179514235-08033b14-2fe7-4072-a771-167c3456036f.jpg)
+![umma](https://user-images.githubusercontent.com/106279697/179514246-2728c40c-5d05-405c-9997-dadf3dd52411.jpg)
 
 
-![hygge beverage menu](https://user-images.githubusercontent.com/106279697/179485421-a9830b2f-d261-44c5-bee5-079930137aa1.png)
-tps://user-images.githubusercontent.com/106279697/179485408-2e9dae39-df8e-4895-84b5-b11f727a7e88.jpg)
-
-![gold](https://user-images.githubusercontent.com/106279697/179485353-ef22ee6e-fe87-4dff-84a6-5332ea19bc26.jpg)
-old.jp
-![horror scream](https://user-images.githubusercontent.com/106279697/179485375-f0e30275-a4bc-4702-9b94-4f11b994cbd6.jpg)
-g…]()
-![horror you are not my mother](https://user-images.githubusercontent.com/106279697/179485383-b6602fe5-87bf-41d4-a607-02e256fb63c8.jpg)
+![thursday](https://user-images.githubusercontent.com/106279697/179514220-b2568eaf-fb1c-4311-822d-4346f0c935d4.png)
+![tuesday](https://user-images.githubusercontent.com/106279697/179514229-7f542831-21f3-4b08-8404-be6067eb0ccd.png)
 
 
-![Uploading fn
-![fnb credit card](https://user-images.githubusercontent.com/106279697/179485255-7da8f3c3-cc46-436e-8692-4f
-![horror hellbender](https://user-images.githubusercontent.com/106279697/179485368-43c7d3ec-8393-4e58-bbed-29208e16a05c.jpg)
-bb82fb8122.png)
-b credit card visa gold.png…]()
-7-4f77-9f18-9b560e
-![free popcorn](https://user-images.githubusercontent.com/106279697/179485289-6cd547c0-7893-4857-b54a-6d0f3fe8b388.png)
+![thriller nitram](https://user-images
+![thrillerpic](https://user-images.githubusercontent.com/106279697/179514206-37ea50d5-ec8a-428f-9449-19238a48f548.jpg)
 
-![fnb](https://user-images.githubusercontent.com/106279697/179485280-f1444b46-77df-43ad-b138-87d16f1b38db.jpg)
-d5036a.jpg)
+![thriller the outfit](https://user-images.githubusercontent.com/106279697/179514198-196a32e4-d90f-4186-8e0b-ff320d1c8e40.jpg)
+.githubusercontent.com/106279697/179514187-47843e53-4f32-4a57-a10b-419ed96f9835.jpg)
 
-![Uploading dessert m
-![ezgif-2-5c06ec07cd99_1568912228](https://user-images.githubusercontent.com/106279697/179485215-179bac62-ca5a-4825-800f-0f39fb3b89a1.gif)
-![fnb credit card blue](https://user-images.githubusercontent.com/106279697/179485231-f511d1b0-4a95-4727-ae4a-c62bcaa65f56.jpg)
 
-![ezgif-2-5c06ec07cd99_1568912228](h
-![fnb credit card blue](https://user-images.githubusercontent.com/106279697/179485219-64b3930c-3ffb-4a46-bf8f-27ab92beec96.jpg)
-ttps://user-images.githubusercontent.com/106279697/179485183-d79ede7d-fd42-4169-932e-511e22c5c9b4.gif)
-enu.png…]()
+![SUNDAY](https://user-image
+![thriller gemini](https://user-images.githubusercontent.com/106279697/179514174-e122d208-ab06-46f9-8d77-ce5ea04ebab7.jpg)
+s.githubusercontent.com/106279697/179514130-11e64e1d-3fa5-45b5-9948-d84987059156.png)
+![Uploading thor love a
+![thriller expired](https://user-images.githubusercontent.com/106279697/179514144-3b69d558-f69d-4539-a845-dfa8c787fd26.jpg)
+nd thunder.jpg…]()
+
+![the summoned](https://us
+![scifi zr](https://user-images.githubusercontent.com/106279697/179514122-833e2043-acd0-47ec-b196-e21b47cadde7.jpg)
+er-images.githubusercontent.com/106279697/179514101-2e657298-4282-4eb7-9ef0-4220f6ab0be3.jpg)
+r-images.githubusercontent.com/106279697/179514089-207250f2-7096-49ff-8185-
+![thriller deep water](https://user-images.githubusercontent.com/106279697/179514111-f66cc8e7-ffe4-4738-b963-c2535a7a21a9.jpg)
+070d2b92b2e7.jpg)
+
+![HYGGE salted](htt
+![private seat cinema2](https://user-images.githubusercontent.com/106279697/179514064-af873d94-5efd-4aaf-998d-3a8d390e7090.jpeg)
+![romance love and gelato](https://user-images.githubusercontent.com/106279697/179514075-91082dc0-2e3e-42e8-b370-41b1d0f9df7d.jpg)
+
+![platinum plus](https://user-images.githubusercontent.com/106279697/179514055-b1363624-43ba-43cf-b54f-71fa6d819735.jpg)
+
+![romance first love](https://user-images.githubusercontent.com/106279697/179514032-0136d35c-c275-4226-a43b-1c
+![scarygif](https://user-images.githubusercontent.com/106279697/179514043-0f7210a8-0e9a-41e2-9aaf-666ce9118825.gif)
+23b895f380.jpg)
+
+![jurrasic world dom
+![private seat cinema](https://user-images.githubusercontent.com/106279697/179514025-19ca9e93-d86c-4dd2-9f38-3526d5922e78.jpg)
+
+![Onyx](https://user-images.githubusercontent.com/106279697/179514019-d68d9810-b7f0-4f6c-877e-a14d4802a03e.jpg)
+
+![romantic comedy fire island](https://user-images.githubusercontent.com/106279697/179514011-efe03753-7a7c-4784-a3c0-40c0521d9469.jpg)
+inion](https://user-ima
+![minions](https://user-images
+![KIDS](https://user-images.githubusercontent.com/106279697/179513981-3707cdb6-a284-43e6-9819-740ff16b5b93.jpg)
+![private seat cinema3](https://user-images.githubusercontent.com/106279697/179514004-62bde3fb-7fad-439f-a88a-3ff1df376e57.jpg)
+
+.githubusercontent.com/106279697/179513974-a4585fd4-cace-43d6-8912-c017c1b23e75.jpg)
+ges.githubusercontent.com/106279697/179513910-47818de1-4e90
+![kids cinema](https://us
+![laugh](https://user-images.githubusercontent.com/106279697/179513964-812ca912-1f42-48b1-a881-b9d7d5e6fafb.jpg)
+er-images.githubusercontent.com/106279697/179513918-f0557aca-c4b4-462c-84e9-91a103d8457d.jpg)
+-402f-84d2-83f1310fe01a.jpg)
+ps:
+![imax 4](https://user-images.githubusercontent.com/106279697/179513878-c1687547-bba4-4c04-8ed7-d8c
+![IMAX-Heart-Pounding-Audio](https://user-images.githubusercontent.com/106279697/179513900-06a16825-4fbf-4c88-9c4b-e5bfb3a278b5.gif)
+
+![IMAX-Comfortable-Seats](https://user-images.githubusercontent.com/106279697/179513893-28ffc875-5e65-4ed9-aef5-2db1d2b317c3.gif)
+f604431f8.jpg)
+![imax gold](https://user-images.githubusercontent.com/106279697/179513884-4c151ec9-4fcc-484c-8d12-ebffeb828c4c.jpg)
+
+![imax 2](https://user-images.githubusercontent.com/106279697/179513869-1a5656e3-029b-42e4-a0cd-f7305f9f7600.jpg)
+//user-images.githubusercontent.com/106279697/179513840-dff7979e-bd6c-4568-89b1-
+![HYGGE SLUSHINATORS](https://user-images.githubusercontent.com/106279697/179513857-2092069f-4d2c-4854-b59d-567cdfd58050.png)
+55dff0827b29.png)
 
